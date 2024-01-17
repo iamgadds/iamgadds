@@ -27,6 +27,6 @@ I'm always open to exciting collaborations and challenging projects. If you have
 
 📧 Email: husain.ghadiyali07.email@gmail.com
 📧 Work-Email: contact@fakhriinfotech.com
-🌐 Portfolio: [yourportfolio.com](https://fakhriinfotech.com/)
+🌐 Portfolio: [MyPortfolio](https://fakhriinfotech.com/)
 
 🌟 Let's Create Magic Together! 🌟
